@@ -1,0 +1,1 @@
+# paradigma_logico_k2053_2026
